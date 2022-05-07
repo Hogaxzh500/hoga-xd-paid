@@ -1,1 +1,0 @@
-# hoga-xd-paid
